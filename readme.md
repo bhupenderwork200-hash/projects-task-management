@@ -1,1 +1,1 @@
-# hardest choices requires the strongest wills
+# it's not about if i can i am doing it because i want to
