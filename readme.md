@@ -1,1 +1,1 @@
-# hello world
+# hardest choices requires the strongest wills
